@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mugle-Sruthi
 - 👀 I’m interested in  Cyber Security 
-- 🌱 I’m currently  pursuing Bachelors of Technology in Computer Science and Engineering
+- 🌱 I’m currently  pursuing Bachelors of Technology in Computer Science and Engineering From Lovely Professional University
 -   I'm passionate about learing new thing about the tech world and gaining knowledge about it . 
 -   I am much fond of experiencing new tech things , and current technology.
 
